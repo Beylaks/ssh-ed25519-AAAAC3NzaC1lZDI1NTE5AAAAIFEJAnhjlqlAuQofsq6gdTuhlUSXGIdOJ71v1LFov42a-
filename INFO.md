@@ -1,0 +1,2 @@
+Git is awsome 
+Жэпа
